@@ -4,3 +4,6 @@
 2. Socials:
   - [Twitter](http://twitter.com/self_bc)
   - [Instagram](http://instagram.com/self.wav)
+  - [SoundCloud](https://soundcloud.com/selfff)
+  - [Bandcamp](https://selfwav.bandcamp.com/)
+  - [YouTube](https://www.youtube.com/channel/UCybqCyMTiVEPBSyBgM0lTwA)
